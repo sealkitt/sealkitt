@@ -12,17 +12,19 @@ it/its + 7teen !!
  </p>
 
 
- i'm usually sitting afk with my friends or by myself, c+h is fine and i don't mind interactions!! keep in mind i am very shy though
+ - i'm usually sitting afk with my friends or by myself, c+h is fine and i don't mind interactions!! keep in mind i am very shy though
 
- most of the time i am off-tab so if you want to talk/interact please whisper me! it may take me a bit to get to your message
+ - most of the time i am off-tab so if you want to talk/interact please whisper me! it may take me a bit to get to your message
 
- **basic dni** don't interact w/ me if ur racist, transphobic, homophobic, a proshipper, ect
+-  **basic dni** don't interact w/ me if ur racist, transphobic, homophobic, a proshipper, under 13, ect
 
- my current interests are phighting, mortal kombat, pokemon, **SEALS** and much more!! if u like any of these things plz feel free 2 talk 2 me abt them .. :-3
+- my current interests are phighting, mortal kombat, pokemon, sonic, **SEALS** and much more!! if u like any of these things plz feel free 2 talk 2 me abt them .. :-3
 
- i am a very awkward person and i struggle with mood swings frequently - please try to be patient w/ me!!! i struggle with interaction but i'm still very down to talk and hangout with people!
+- i am a very awkward person and i struggle with mood swings frequently - please try to be patient w/ me!!! i struggle with interaction but i'm still very down to talk and hangout with people!
+- do also keep in mind i get overwhelmed extremely easily !!
 
-  <p align="center">
+
+<p align="center">
  <img src="https://github.com/user-attachments/assets/5125c9bb-2538-45a4-9a15-b08b724c5cec"
  </p>
 
