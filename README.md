@@ -14,14 +14,15 @@ it/its + 7teen !!
 
  - i'm usually sitting afk with my friends or by myself, c+h is fine and i don't mind interactions!! keep in mind i am very shy though
 
- - most of the time i am off-tab so if you want to talk/interact please whisper me! it may take me a bit to get to your message
+ - whisper 2 interact pretty please!! most of the time i am off tab so if you ever wanna talk please whisper me! it may take me a bit to see your message
 
--  **basic dni** don't interact w/ me if ur racist, transphobic, homophobic, a proshipper, under 13, ect
+-  **[basic dni](https://basic-dni.crd.co/)** don't interact w/ me if ur racist, transphobic, homophobic, a proshipper, under 13, ect
 
 - my current interests are phighting, mortal kombat, pokemon, sonic, **SEALS** and much more!! if u like any of these things plz feel free 2 talk 2 me abt them .. :-3
 
-- i am a very awkward person and i struggle with mood swings frequently - please try to be patient w/ me!!! i struggle with interaction but i'm still very down to talk and hangout with people!
-- do also keep in mind i get overwhelmed extremely easily !!
+- i'm neurodivergent (bpd . autism . dont feel like listing it all) so please try to be patient with me, i struggle with interaction at times and some jokes/ect will go over my head!! do keep in mind i get very overwhelmed easily so dont take it personally if i back off, i just need a moment to myself!!
+- sometimes i need reassurance if something is a joke or something serious !! i have a hard time reading tones
+- my tone might come across as dry or blunt sometimes but please don't take it personally!! i have a hard time conveying tone in text
 
 
 <p align="center">
