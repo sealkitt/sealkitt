@@ -23,6 +23,7 @@ it/its + 7teen !!
 - i'm neurodivergent (bpd . autism . dont feel like listing it all) so please try to be patient with me, i struggle with interaction at times and some jokes/ect will go over my head!! do keep in mind i get very overwhelmed easily so dont take it personally if i back off, i just need a moment to myself!!
 - sometimes i need reassurance if something is a joke or something serious !! i have a hard time reading tones
 - my tone might come across as dry or blunt sometimes but please don't take it personally!! i have a hard time conveying tone in text
+- don't be afraid 2 interact !!!!!! if u wanna talk at all i'm always down! any interactions are appreciated and i would rlly love to meet new people! :-D
 
 
 <p align="center">
